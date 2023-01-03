@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 Georgii Budnik:
 🧑‍💻 Innopolis University student, 2nd course<br>🎯 Team/Tech lead | IT projects<br>😃 Drummer / Coffee lover
 
 
